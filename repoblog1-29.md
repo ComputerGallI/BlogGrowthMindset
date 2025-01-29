@@ -1,18 +1,18 @@
-## Blog entry 1/29
+## Blog entry 1/29 REMEMBERING THAT YOU ARE THAT GIRL 
 
 ### How to keep the positive when the negative comes knocking!
 
-#### In a world where it is easy to get overwhelmed, you have to be your own grounding agent. 
+#### In a world where it is easy to get overwhelmed, you have to be your own grounding agent. GET OUTSIDE! 
 
-* Today in class we learned about Version protection
-- As well as Github desktop 
-+ VS code integration
+* Did you drink enough water today?
+- Did you touch some grass today? 
++ Did you reach out to into the world today?
 
 
 <img src="https://img.freepik.com/premium-vector/stay-positive-quotes_767194-387.jpg">
 
 
 
-[Hype!](https://www.mayoclinic.org/healthy-lifestyle/stress-management/in-depth/positive-thinking/art-20043950)
+[BringthatBeatin!](https://www.youtube.com/watch?v=09z3qcegpHU)
 
-india
+Approved by auxsmith
